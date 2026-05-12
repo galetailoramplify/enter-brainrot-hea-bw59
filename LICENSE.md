@@ -1,4 +1,4 @@
-#  
+#  best enter brainrot heads Script offers the most advanced enter brainrot heads Script, with no clip and auto-sell. Perfect for dominating any match.
 
 
 
